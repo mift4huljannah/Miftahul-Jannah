@@ -1,2 +1,0 @@
-# Miftahul-Jannah
-Pondok Pesantren
